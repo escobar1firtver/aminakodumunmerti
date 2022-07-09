@@ -1,2 +1,0 @@
-# aminakodumunmerti
-Amkmerti
